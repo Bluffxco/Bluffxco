@@ -1,9 +1,9 @@
-BluffX™ 
-https://bluffx.com
-- X-rated productions
+analnx 
+https://analnx.com
+- X-rated website
 - Content publishing 
 
-📫 admin@bluffx.com
+📫 bluffx@email.com
 
-<!---Professionally produced amateur homemade content
+<!---
  --->
